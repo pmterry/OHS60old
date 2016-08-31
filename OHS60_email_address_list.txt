@@ -1,0 +1,10 @@
+This file: OHS60_email_address_list.txt
+
+This github URL: https://github.com/pmterry/OHS60/
+
+08/30/16:
+Example with three email addresses.
+
+Arterburn, Sharrel (McBride)      searterbu@charter.net
+Smith, Charles                    c7psmith@hotmail.com
+Terry, Mike                       pterry2@mac.com
