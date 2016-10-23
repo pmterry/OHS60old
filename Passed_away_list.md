@@ -12,7 +12,7 @@ These are the classmates that have passed away.  Since I have always been in the
 * Dale Bradley
 * Ed Brandorff
 * Karen Dressler Smith
-* Diane Fifield Olson
+* Diane Emery Olson
 * Ron Hinkle
 * Sidney Hood
 * Gregg Hoover      8/18/2015
