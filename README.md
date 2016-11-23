@@ -15,9 +15,9 @@ for mailings to the whole class as of 11/13/16.)
 --__passed_away_list.md__ (A list of classmates who have passed away.)
 
 __Navigation__ around the site: Once at the site, the README.md is always open.
-Click on one of the other three to open it. To get back to open another file,
-click your browser to return to the previous page, or enter the sites address
-in the browser address window. 
+Click on one of the other three files to open it. This takes you to another page.
+To get back to open another file, click your browser 'return', or enter the address
+above in the browser address window. 
 
 __Cell phone__ The site can be accessed from a cell phone, use the Safari browser 
 on an iPhone.
