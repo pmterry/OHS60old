@@ -1,6 +1,6 @@
 # OHS60
 
-OHS60 website has four files, its URL is https://github.com/pmterry/ohs60
+OHS60 website has four files, its URL is https://github.com/pmterry/OHS60
 
 The files are:
 
@@ -14,10 +14,11 @@ for mailings to the whole class as of 11/13/16.)
 
 --__passed_away_list.md__ (A list of classmates who have passed away.)
 
-__Navigation__ around the site: Once at the site, the README.md is always open.
+__Navigation__ around the site: Once at the site, this README.md is always open.
 Click on one of the other three files to open it. This takes you to another web page to
 view that file. To get back to the URL given above in order to open/view another file, 
 click your browser 'return', or enter the URL address above in your browser address window. 
 
-__Cell phone__ The site can be accessed from a cell phone, use the Safari browser 
-on an iPhone.
+__Cell phone__ The site can be accessed from a cell phone, for example, use the Safari 
+browser on an iPhone. Using the above URL, to view the list of three files other than
+the README.md file, click 'View code', then the file you want to view.
