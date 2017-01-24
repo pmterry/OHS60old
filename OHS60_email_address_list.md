@@ -75,4 +75,4 @@ Watson, Karen (Lee)               mowerman@gpcom.net
 Wilcoxson, Sharon (Lenox)         lenoxof@rollanet.org  
 Williams, Jerry                   jerry@amallc.org  
 
-
+pterry@huskers.unl.edu, pterry2@mac.com
