@@ -75,3 +75,15 @@ Watson, Karen (Lee)               mowerman@gpcom.net
 Wilcoxson, Sharon (Lenox)         lenoxof@rollanet.org  
 Williams, Jerry                   jerry@amallc.org  
 
+## 01/29/17
+
+I note three of 43 addresses I emailed to on this date were returned, not deliverable. They were:
+
+Anderson, Sharon (Frickey)        rfrickey@nebnet.net
+
+Cobaugh, Joyce                    jaseffron@verizon.net
+
+Fulcher, Ben                      benvesta@msa.com
+
+
+Of the 40 emails successfully delivered, 39 different persons received it as one person has two email addresses on the list. 

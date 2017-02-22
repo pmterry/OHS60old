@@ -4,6 +4,40 @@ August 31, 2016
 
 
 
+## 01/29/17
+
+Hi OHS60 class members,
+
+In an attempt to sort of 'keep up' with class members, prepared sort of a reference/archive website with four files on it. The URL is:
+
+github.com/pmterry/OHS60
+
+At this URL, the README.md file is always open. It describes how to navigate/use the site. The files will be updated as appropriate.
+
+I note, D. Pierce provided much information for the files.
+
+I welcome any comments, will make any changes suggested by anyone.
+
+If anyone knows how/if one can group email addresses so that one could, in *one* copy and paste step, paste all the email addresses for an emailing to the class, I would implement it?
+
+I note, Facebook, Twitter, etc. may be good for something like this (github not as straight forward/easy to use). At this time, github definitely needed for bioinformatics research, so am working with it.
+
+
+Thx & Best,
+
+Mike Terry
+
+A note FOLLOWING the emailing: of the 43 email addresses this message was sent to, three were returned undeliverable. They were:
+
+Anderson, Sharon (Frickey) rfrickey@nebnet.net
+
+Cobaugh, Joyce jaseffron@verizon.net
+
+Fulcher, Ben benvesta@msa.com
+
+
+Of the 40 deliverable emails, since one person has two addresses on the list, 39 different persons received the email.
+
 ## 08/25/16
 
 Thanks for the note Darrell. It's always interesting to hear bits of information about classmates. Perhaps one of these days I will stop resisting Facebook. 
