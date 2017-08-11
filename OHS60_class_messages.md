@@ -4,6 +4,63 @@ August 31, 2016
 
 
 
+## 07/17/17
+
+Re: Carolyn Ross update
+
+Thanks for the update. It's nice get some news from the old home rown.
+
+Billmarep
+
+## 07/17/17
+
+Carolyn Ross update
+
+Carolyn was released from the hospital about 10 days ago and is doing more therapy at Indian Hills Manor    1720 North Spruce  Ogallala, NE  69153.   When she gets stronger she will be returning to an assisted living facility.
+ 
+Should have sent this earlier, but was busy with other things.
+ 
+All for now
+ 
+Darrell Pierce
+
+## 06/28/17
+
+Karolyn Sagert Schmidt
+
+Sharrel Arterburn received a call this morning from Karen Sagert Schimke saying that Karolyn died on June 5th and wanted to let everyone be aware of her death.  Karen said " Karolyn had been having health problems the last 10 years."  Karolyn was living in Albuquerque.
+ 
+Cards can be sent to : Karen Sagert Schimke
+                                  2665 Iola Street
+                                  Denver, CO   80238
+ 
+Sorry for the bad news
+ 
+Darrell Pierce
+
+## 06/26/17
+
+Carolyn Ross
+
+ just returned home from visiting with Carolyn.  She came to the Perkins County Hospital last Friday and is doing fine.  Will be at hospital for about two weeks to continue therapy
+and then be able to go home.  Cards can be sent to Perkins County Hospital   
+900 Lincoln Ave.   
+Grant, NE   69140
+ 
+Darrell Pierce
+
+## 06/15/17
+
+Carolyn Harmonson Ross
+
+Carolyn had surgery yesterday (6-14-2017) at Un. of Neb Medical Center in Omaha to remove a spot on her lung that was cancer.  Her mother called me this morning and said every thing went well with the surgery and Carolyn was up and sitting in a chair this morning.  Unless something changes they plan to keep her in Omaha for a week and bring her back to the Perkins County Hospital in Grant to continue recovery.  I asked about cards and Irene said sent them to Grant since she should be here in a few days.
+ 
+We don't have all class members on the email list so if you are in contact with other members tell them about Carolyn.
+ 
+That is all for now
+ 
+Darrell Pierce
+
 ## 01/29/17
 
 Hi OHS60 class members,

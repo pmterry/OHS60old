@@ -24,6 +24,7 @@ These are the classmates that have passed away.  Since I have always been in the
 * Deloris Meline Sibal
 * Gary Morrell    7/3/87
 * Pat Rogowski Osmera
+* Karolyn Sagert Schmidt  06/05/17
 * Dennis Tillman
 * SteveTurco          11/2012
  
