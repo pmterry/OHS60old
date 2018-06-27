@@ -1,8 +1,102 @@
-# OHS60 Class Messages
-Prepared by M. Terry  
-August 31, 2016  
+---
+title: "OHS60 Class Messages"
+author: "Prepared by M. Terry"
+date: "August 31, 2016"
+output: 
+  html_document: 
+    keep_md: yes
+---
 
 
+
+## 04/06/18
+
+Re: Joanne Elmshaeuser Brill
+
+Thanks Darrell. She was one of my very best friends. Had a minor surgery that day. Would have liked to have gone.
+
+From Norma Paloucek
+
+
+## 04/06/18
+
+RE: Joanne Elmshaeuser Brill
+
+Thanks Darrel. I concur with Bill.
+
+ 
+
+Jerry Williams
+
+## 04/06/18
+
+Re: Joanne Elmshaeuser Brill
+
+Thank you Darrel for keeping us informed.  We're getting to the age where this kind of news comes around far too frequently.
+
+Bill Pierpoint
+billmarep@aol.com
+
+## 04/06/18
+
+Joanne Elmshaeuser Brill
+
+Joanne Elmshaeuser Brill age 75, passed away on March 30, 2018 at 
+Lincoln, NE.  She is survived by 4 children, 2 boys and 2 girls. The 
+cause of death was not listed in the Keith County News. Online 
+condolences may be sent to
+
+metcalffuneralservices.com.   Burial was in Ogallala cemetery.
+
+No more news good or bad.
+
+Darrell Pierce
+
+## 01/02/18
+
+Re: Happy New Year
+
+Happy New Year to all of you too!
+
+From Bill Pierpoint
+
+## 12/28/17
+
+Happy New Year
+
+Wishing everyone a HAPPY NEW YEAR from cold and snowy Nebraska. We pray 
+that everyone stays healthy in 2018.
+
+
+Darrell Pierce
+
+## 09/28/17
+
+Re: update
+
+Hi Darrell,
+
+Thank you for keeping me informed.  Our prayers go out to those who are hurrting.
+
+Bill Pierpoint
+billmarep@aol.com
+
+## 09/28/17
+
+update
+
+Carolyn Ross has been moved back to assisted living.  There was not an opening in Ogallala or Grant, so she is in North Platte. 
+The new address is Carolyn Ross    3700 West Philip Ave.   #120
+                                                     North Platte, NE   69101
+Her phone number 308-352-2742
+ 
+I saw Wayne Spangler two weeks ago and he has had a slight stroke.  He can still drive.  He said it has slowed down his coffee drinking but is doing therapy to hopefully get better.
+ 
+David Brunswig lost his brother Bob on Sept 12, 2017.  Bob retired and moved to Tucson. AZ in 2003.  We extend our sympathy to Dave and his family.
+ 
+That is all for now.
+ 
+Darrell Pierce
 
 ## 07/17/17
 
