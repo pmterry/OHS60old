@@ -8,6 +8,57 @@ output:
 ---
 
 
+## Start of site, 08/31/16
+
+
+## 03/02/19
+
+Fwd: Mick McMurtery died
+1 week ago at 2:03 PM
+From Darrell & Cathy Pierce to 39 recipients
+
+-------- Forwarded Message --------
+Subject: 	Mick McMurtery died
+Date: 	Sat, 2 Mar 2019 20:22:24 +0000 (UTC)
+From: 	Jim Putman <sjput1@yahoo.com>
+To: 	Darrell & Cathy Pierce <clpierce@gpcom.net>
+
+Darrell - Saw in the Lincoln paper yesterday that classmate Mike McMurtery died.  I am attaching the obituary from the funeral home.  His funeral will be Monday, March 4th at 11 a.m. at Christ United Methodist Church in Lincoln.   Jim           
+
+
+## 01/31/19
+
+Karen Watson Lee update
+January 31, 2019 at 12:51 PM
+From
+Darrell & Cathy Pierce to 39 recipients
+
+Karen passed away on Monday.  Funeral services are at 10:00 AM Saturday 
+at the United Methodist Church in Gordon NE.   Cards may be sent to the 
+family at      
+6648 196th Lane
+Gordon, NE  69343
+
+Darrell Pierce
+
+
+## 01/22/19
+
+Karen Watson Lee
+January 22, 2019 at 5:21 PM
+From
+Darrell & Cathy Pierce to 39 recipients
+
+Karen was diagnosed with Lymphoma in 2014  and has been taking 
+treatment.  She is in hospice care at the present time.
+
+If you  would like to send a card :     
+Karen Lee
+6648 196th Lane
+Gordon, Ne   69343
+
+Darrell Pierce
+
 
 ## 04/06/18
 
